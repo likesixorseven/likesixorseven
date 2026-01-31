@@ -1,2 +1,2 @@
-<img width="2827" height="2827" alt="image" src="https://github.com/user-attachments/assets/98c9568a-b2dd-4cf0-b917-eec9c82be664" />
-<img width="2827" height="2827" alt="image" src="https://github.com/user-attachments/assets/3124e06b-aa97-4069-8999-b2db204c9a6e" />
+<img width="600" height="600" alt="image" src="https://github.com/user-attachments/assets/5b08a874-8fdb-4384-9e30-c505871cdeec" />
+<p align="center">c*h comf⠀⠀✸⠀⠀eighteen</p>
